@@ -1,0 +1,1 @@
+A simple Ecommerce website made on Dell 15 Laptop, Intel Core i5-1235U Processor/16GB DDR4/512GB SSD/Intel UHD Graphics/15.6" (39.62cm) FHD Display/Win 11 + MSO'21/15 Month... Laptop and its features and details
